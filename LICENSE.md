@@ -1,4 +1,4 @@
-# 
+# updated baddies Script offers the most advanced baddies Script, with aimbot and private server access. Perfect for dominating any match.
 
 
 
